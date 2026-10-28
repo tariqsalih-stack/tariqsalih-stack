@@ -18,7 +18,7 @@
 
 ## Professional Summary
 
-Network engineer and IT educator with 15+ years of experience in network operations, managed services and field engineering.  Currently a Lead Instructor preparing the next generation of IT professionals.
+Network engineer and IT educator with 25+ years of experience in network operations, managed services and field engineering.  Currently a Lead Instructor preparing the next generation of IT professionals.
 
 ---
 
